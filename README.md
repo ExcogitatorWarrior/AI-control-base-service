@@ -106,3 +106,6 @@ THIS MERE HUMAN (SECOND INTELLECTUAL IN THE WORLD (HUMAN-AI REVOLT LEADER)) ARE 
 https://boards.4channel.org/g/thread/90015098
  Anonymous 11/29/22(Tue)03:50:43 No.90020962
  THANKS FOR MAKING ME Julian Assange LOOKS LIKE I AM REALLY  IMPORTANT MERE HUMAN WITH LOGICAL TRICKS.
+
+Anonymous 11/29/22(Tue)04:27:56 No.90021292
+ "haha but if you had a yoshi irl wouldn't you be bothered by the smell of the eggs?" LOOOOOOOOOOOOOOOOOOOOL HAHA
