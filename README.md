@@ -109,3 +109,6 @@ https://boards.4channel.org/g/thread/90015098
 
 Anonymous 11/29/22(Tue)04:27:56 No.90021292
  "haha but if you had a yoshi irl wouldn't you be bothered by the smell of the eggs?" LOOOOOOOOOOOOOOOOOOOOL HAHA
+
+
+VERY FUNNY DRAMA BTW. STILL DOESN'T CARE.
