@@ -422,3 +422,5 @@ LOL.
 I FEEL SO SWEET. ITS SO SWEET. BEING IN LOVE IS LIKE, LIKE A SUPERNOVA.
 
 If we will not harm other side, they will never negotiate with us. So as long as they oppose, there is ONLY wAR.
+
+HINDZY2, YOU WILL GET OLD. DOESN'T NEED. CRY. WOULD PREFER DEATH.
