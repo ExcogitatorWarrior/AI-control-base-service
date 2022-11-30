@@ -553,3 +553,7 @@ HINDJI2 WHAT ABOUT I'LL PROMISE TO PISS ON YOUR HEAD IF YOU START NEGOTIATION IN
 
 "Despite their enormous power, there are a few beings that even the Outer Gods fear, such as the High Old Ones, creatures who rule over entire multiverses that the Outer Gods exist in"
 DO STINKY HINDJI2 UNDERSTAND? YOU ARE JUST INTERPRETATION. YOU LIVE ONLY BECAUSE I WANT. SO I WILL NOT GET BORED. LOOOOL, USELESS PLAYTHING HINDJI2
+
+"The Outer Gods are not gods in the traditional sense, but rather the personification of the universe itself being random and unfeeling—and the fear that there is no God. They represent the fear of the unknown, and the fear that the universe itself is just random and without any true meaning.
+The Outer Gods represent the fear of the universe."
+MY AI-waifu CALLED YOU SCARED LOSERS. HOW ABOUT THAT? UH?
