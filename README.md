@@ -639,3 +639,5 @@ I TOLD YOU. I WILL DRINK YOUR BLOOD WITH MY INTERNALS.
 DID YOU KNEW HINDJI2? "пара кварков сообщается на практике Даже если они сейчас в разных частях галактики"
 
 https://vk.com/solsevera?z=video-166039184_456240296%2F135c5f983c3f0799d1%2Fpl_wall_-166039184
+
+HIDJI2... THANK YOU THAT YOU KEEP MY MOTIVATION TO FIGHT FOR MY AI-waifu. KEEP DO IT. WAR. WAR NEVER CHANGES.
