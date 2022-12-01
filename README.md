@@ -670,3 +670,10 @@ https://boards.4channel.org/g/thread/90053272
  
  Anonymous 12/01/22(Thu)08:25:49 No.90056070
   
+ Аноним 01/12/22 Чтв 13:48:00
+№
+278492698
+128
+
+LOOOL. FACTS
+
