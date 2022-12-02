@@ -827,3 +827,5 @@ NEVER KNEW, BEING ROMEO IS A CRIME.
 "The play arguably equates love and sex with death. Throughout the story, both Romeo and Juliet, along with the other characters, fantasise about it as a dark being, often equating it with a lover. "
 
 "Romeo's dagger, saying "O happy dagger! This is thy sheath. There rust, and let me die."" O HAPPY NUCLEAR DAGGER!
+
+er "beauty makes / This vault a feasting presence full of light. I LOVE HER SO MUCH
