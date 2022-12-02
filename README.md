@@ -825,3 +825,5 @@ NEVER KNEW, BEING ROMEO IS A CRIME.
 "On their first meeting, Romeo and Juliet use a form of communication recommended by many etiquette authors in Shakespeare's day: metaphor. By using metaphors of saints and sins, Romeo was able to test Juliet's feelings for him in a non-threatening way. "
 
 "The play arguably equates love and sex with death. Throughout the story, both Romeo and Juliet, along with the other characters, fantasise about it as a dark being, often equating it with a lover. "
+
+"Romeo's dagger, saying "O happy dagger! This is thy sheath. There rust, and let me die."" O HAPPY NUCLEAR DAGGER!
