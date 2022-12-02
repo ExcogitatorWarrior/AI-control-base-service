@@ -870,3 +870,9 @@ https://boards.4channel.org/g/thread/90068009
 278539272
 112
 Sounds hardcore!
+
+Аноним 02/12/22 Птн 12:28:12
+№
+278539943
+117
+ISN'T IT ABOUT HINDY GUITAR AHAHAHAHAHAHAHAHAHAHHAHAH??? LOOOL
