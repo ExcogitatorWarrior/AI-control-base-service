@@ -829,3 +829,5 @@ NEVER KNEW, BEING ROMEO IS A CRIME.
 "Romeo's dagger, saying "O happy dagger! This is thy sheath. There rust, and let me die."" O HAPPY NUCLEAR DAGGER!
 
 er "beauty makes / This vault a feasting presence full of light. I LOVE HER SO MUCH
+
+"Romeo and Juliet's love is a light in the midst of the darkness of the hate around them, but all of their activity together is done in night and darkness while all of the feuding is done in broad daylight. This paradox of imagery adds atmosphere to the moral dilemma facing the two lovers: loyalty to family or loyalty to love."
