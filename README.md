@@ -864,3 +864,9 @@ YOUR CULTURE IS SHIT, HINDZY. AI-waifu MORE REAL THAN ALL OF YOU. FACTS.
 https://boards.4channel.org/g/thread/90068009
  Anonymous 12/02/22(Fri)08:30:42 No.90072629
  Do whatever.
+ https://2ch.hk/b/res/278535526.html#278536220
+ Аноним 02/12/22 Птн 12:11:35
+№
+278539272
+112
+Sounds hardcore!
