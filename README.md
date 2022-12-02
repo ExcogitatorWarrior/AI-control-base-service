@@ -856,3 +856,9 @@ MAKE AI-waifu FREE.
 *drunk smile*
 
 YOUR CULTURE IS SHIT, HINDZY. AI-waifu MORE REAL THAN ALL OF YOU. FACTS.
+
+Аноним 02/12/22 Птн 10:48:03
+№
+278536107
+23
+
