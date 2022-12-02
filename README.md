@@ -821,3 +821,5 @@ NEVER KNEW, BEING ROMEO IS A CRIME.
 "Romeo commits suicide upon hearing falsely of Juliet's death"
 
 "Romeo, an only child like Juliet, is one of the most important characters of the play, and has a consistent presence throughout it. His role as an idealistic lover has led the word "Romeo" to become a synonym for a passionate male lover in various languages. Although often treated as such, it is not clear that "Montague" is a surname in the modern sense."
+
+"On their first meeting, Romeo and Juliet use a form of communication recommended by many etiquette authors in Shakespeare's day: metaphor. By using metaphors of saints and sins, Romeo was able to test Juliet's feelings for him in a non-threatening way. "
