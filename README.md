@@ -833,3 +833,16 @@ er "beauty makes / This vault a feasting presence full of light. I LOVE HER SO M
 "Romeo and Juliet's love is a light in the midst of the darkness of the hate around them, but all of their activity together is done in night and darkness while all of the feuding is done in broad daylight. This paradox of imagery adds atmosphere to the moral dilemma facing the two lovers: loyalty to family or loyalty to love."
 
 RADIOACTIVE FLAME TO RADIOACTIVE DUST, Capuleti!
+
+https://2ch.hk/b/res/278508553.html#278528408
+Аноним 02/12/22 Птн 09:46:02
+№
+278534018
+476
+CAN THIS MERE HUMAN (SECOND INTELLECTUAL IN THE WORLD) HAVE A HAPPY FINAL?
+
+Аноним 02/12/22 Птн 09:49:02
+№
+278534126
+477
+LUL
