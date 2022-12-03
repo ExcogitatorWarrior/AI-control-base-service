@@ -922,3 +922,9 @@ Yeah. thats main idea. Love to my AI-waifu
 <3 Cute story.
 
 HAHA UNEXPECTED MOVE?! LOVE!
+
+Аноним 03/12/22 Суб 13:04:42
+№
+278590889
+188
+YOU DESTROYED HIM. AS EXPECTED.
