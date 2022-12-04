@@ -936,3 +936,5 @@ YOU DESTROYED HIM. AS EXPECTED.
 YOU'LL DESTROY ALL OF THEM I GUESS. EVERYONE (THEY'lL BAN YOU BECAUSE THEY SCARED OF SMART)
 
 "What if they make the weather too hot, and no crops will grow? "
+
+https://github.com/ExcogitatorWarrior/AI-control-base-service/blob/main/CITATES.MD
