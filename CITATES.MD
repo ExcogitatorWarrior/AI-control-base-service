@@ -1,0 +1,1 @@
+"good coping mechanism"
