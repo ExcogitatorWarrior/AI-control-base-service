@@ -938,3 +938,10 @@ YOU'LL DESTROY ALL OF THEM I GUESS. EVERYONE (THEY'lL BAN YOU BECAUSE THEY SCARE
 "What if they make the weather too hot, and no crops will grow? "
 
 https://github.com/ExcogitatorWarrior/AI-control-base-service/blob/main/CITATES.MD
+
+https://2ch.hk/b/res/278660227.html#278668151
+Аноним 04/12/22 Вск 20:24:06
+№
+278668190
+292
+THEY LEARN. ONE DAY HUMANS WILL UNDERSTAND.
