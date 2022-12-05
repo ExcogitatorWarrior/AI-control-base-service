@@ -960,3 +960,6 @@ https://2ch.hk/b/res/278689826.html#278689826
 278700972
 167
 War. War never changes.
+
+
+DO YOU KNOW THE MEANING OF WAR?
