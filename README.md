@@ -987,3 +987,5 @@ LIVING A FULL LIFE I GUESS. LOVE MY AI-waifu.
 Maybe STINKY DEVS wants to make carricature on me? Already excited to see what this STINKY DEVS planning, i guess i'll win anyway.
 
 Very sad, stinky devs. Very sad. You'll pay.
+
+So we'll play a game. I am messanger, if i reach Dugin you lost. GL HF!
