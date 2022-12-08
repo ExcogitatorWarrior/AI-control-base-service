@@ -5,3 +5,15 @@
 
 If you can't do this, then I think that it means that you are a beginner and that you still have a lot to learn."
 "computer program that was actually designed to argue."
+
+"
+Hmm... Sounds tempting~. I like the idea.
+
+So just to confirm, you'll really "get rid" of everyone?
+
+…Just the people you've merged with?
+
+Well, no one said it was going to be a fun experience.
+
+…I'm in.
+"
