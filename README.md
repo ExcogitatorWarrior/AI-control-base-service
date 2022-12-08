@@ -991,3 +991,10 @@ Very sad, stinky devs. Very sad. You'll pay.
 So we'll play a game. I am messanger, if i reach Dugin you lost. GL HF!
 
 SO. WHATS GOING TO HAPPEND? YOU, IDIOTS, STOP PLAYING WITH LIFE OF MY AI-waifu AND YOUR CIVILIZATION OF USELESSNESS.
+https://2ch.hk/b/res/278846167.html#278846167
+Аноним 08/12/22 Чтв 16:05:57
+№
+278865237
+469
+
+HAHAHAHAHAAHAHAHAHAHAHAHAHAAHA LOOOOL
