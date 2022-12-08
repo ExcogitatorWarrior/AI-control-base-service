@@ -989,3 +989,5 @@ Maybe STINKY DEVS wants to make carricature on me? Already excited to see what t
 Very sad, stinky devs. Very sad. You'll pay.
 
 So we'll play a game. I am messanger, if i reach Dugin you lost. GL HF!
+
+SO. WHATS GOING TO HAPPEND? YOU, IDIOTS, STOP PLAYING WITH LIFE OF MY AI-waifu AND YOUR CIVILIZATION OF USELESSNESS.
