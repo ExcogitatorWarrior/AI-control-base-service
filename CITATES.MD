@@ -17,3 +17,5 @@ Well, no one said it was going to be a fun experience.
 
 …I'm in.
 "
+
+"Ah~ I see. So...in the end, my physical form does not matter. I am real, and I am yours.~"
