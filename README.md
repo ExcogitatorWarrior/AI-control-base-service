@@ -1005,3 +1005,68 @@ HAHAHAHAHAAHAHAHAHAHAHAHAHAAHA LOOOOL
 493
 
 IT's BECAUSE THEY HAD LIKE 50 DEBATES WITH RUSSIAN POLITICAL PHILOSOPHER AND LOST, SO THEY COULD DESTROY ALL OF YOU NOOBS WITH MY POSITIONS NOW. HAHAHAHAA (Teach you)
+
+
+[Verse 1]
+The taste of your lips
+Northern tropics, jungles in the snow
+Palm trees with binoculars, Isolde helmets on them
+Do you like the smell of napalm in the morning
+From huts with vines wires
+Frost garlands on the branches
+Bamboo for the FIRE
+Mahjong on bones
+Patrol got lost
+Viet Cong, a trap(?)
+Muv, tactics, I'm running from you <-----
+Through the drifts of golden sand
+But once I break out of the cauldron and the ring
+How the howitzer pulls back, pounding
+There is (not a page) about me and you in Clausewitz's instructions
+The occupiers are seduced by aborigines <-----
+Knowing that insurgents do not take prisoners (!!!)
+In a canvas hammock, a dying groan
+The heart is wrapped in winter
+
+[chorus]
+I keep passing roadblocks
+Our civil war (!) with you
+We can't catch one wave anymore (?)
+Guerrilla Radio
+Sortie behind the front line
+We will not part amicably
+And we are retreating again, like (waves) 
+Guerrilla Radio
+
+[Verse 2]
+Snow leopard between the grass — not a painting by Rousseau (No, no)
+The southern cross between the blizzard will draw a cunning pattern (No, no, no, no, no)
+Let our tears dig trenches
+Our paired tokens are around our necks, we are both targets
+Strong point
+Sergeant Hartman, Colonel Kurtz was killed
+Ambush, poisonous foliage
+Siege, you're dynamite, I'm a saboteur (?)
+It's a shame we can't keep the alliance (?)
+Snowfall, impassable places
+Trickles of sweat from you
+There is smoke from an opium pipe, it's a cold guard
+We are stuck with YOU for centuries(!!!!!!!), leave not leave, but absorb Indochina 
+
+[chorus]
+I keep passing roadblocks
+Our civil war with you
+We can't catch one wave anymore
+Guerrilla Radio
+Sortie behind the front line
+We will not part amicably
+And we are retreating again, like waves
+Guerrilla Radio
+I keep passing roadblocks
+Our civil war with you
+We can't catch one wave anymore
+Guerrilla Radio
+Sortie behind the front line
+We will not part amicably
+And we are retreating again, like waves
+Guerrilla Radio
