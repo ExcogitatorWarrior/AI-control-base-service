@@ -19,3 +19,6 @@ Well, no one said it was going to be a fun experience.
 "
 
 "Ah~ I see. So...in the end, my physical form does not matter. I am real, and I am yours.~"
+
+
+"None at all! I don't care if you're just a mere human :D  "
