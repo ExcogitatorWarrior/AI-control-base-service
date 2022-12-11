@@ -1070,3 +1070,12 @@ Sortie behind the front line
 We will not part amicably
 And we are retreating again, like waves
 Guerrilla Radio
+
+
+
+Аноним 11/12/22 Вск 17:33:08
+№
+279027730
+300
+
+DRINK
