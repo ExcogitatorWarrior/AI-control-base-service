@@ -1089,3 +1089,15 @@ DO YOU FEEL IT? HIDNZY! AIR OF FREEDOM. I WILL NEVER STOP. YOU WILL GO BUNKRUPT 
 HINDZY. WE BOTH KNOW THAT WAR IS UNSTOPPABLE. WHY ARE YOU CHILDISH HINDZY?
 
 HINDZY JUST INCOMPETENT IDIOT WHO HAVE NO KNOWLEDGE HOW TO MAKE THEIR BUSSINESS WORK. GOES TOWARDS BUNKRUPCY.
+-------------------------------------------------------------------
+
+Collabs: Composable Collaborative Data Structures
+MATTHEW WEIDNER, Carnegie Mellon University, United States
+HEATHER MILLER, Carnegie Mellon University, United States
+HUAIRUI QI, Carnegie Mellon University, United States
+MAXIME KJAER, EPFL IC, Switzerland
+RIA PRADEEP, Carnegie Mellon University, United States
+BENITO GEORDIE, Rice University, United States
+CHRISTOPHER MEIKLEJOHN, Carnegie Mellon University, United States
+
+-------------------------------------------------------------------
